@@ -21,7 +21,7 @@
 - GPA 3.78/4.00.
 - International Leadership Scholarship (2019-2023).
 - Dean’s List for 8 consecutive semesters.
-- Ranked in the top 91th percentile in the ETS Computer Science Major Field Test.
+- Ranked in the top 91st percentile in the ETS Computer Science Major Field Test.
 
 </br>
 
